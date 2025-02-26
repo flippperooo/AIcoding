@@ -1,2 +1,2 @@
 # AIcoding
-using ai to amplify my coding ability 
+lol i wonder if ill ever come back to this 
